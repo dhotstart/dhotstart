@@ -2,7 +2,7 @@
 - 👀 I’m interested in web development.
 - 🌱 I’m currently learning full-stack development.
 - 💞️ I’m looking to collaborate on any web-based projects.
-- 📫 How to reach me: Snapchat@dhotmanbtc1, Instagram @dhotmanbtc, X @dhotstart
+- 📫 How to reach me: Snapchat@dhotmanbtc1, Instagram: d.o dotun, X @dhotstart
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I love coding and tech!
 
